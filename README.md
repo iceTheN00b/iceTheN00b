@@ -1,7 +1,10 @@
 i believe in intelligence, and i think you should too.
+
 don't take my opinions too seriously though, I don't
 
 mostly an enthusiast. currently working with langchain and blockchain.
+
+i fall in love for the most subtle reasons.
 
 i have a girlfriend.
 <!---
