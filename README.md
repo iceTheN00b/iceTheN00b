@@ -1,6 +1,6 @@
 i believe in intelligence, and i think you should too.
 
-don't take my opinions too seriously though, I don't
+don't take my opinions too seriously though, I don't.
 
 mostly an enthusiast. currently working with langchain and blockchain.
 
