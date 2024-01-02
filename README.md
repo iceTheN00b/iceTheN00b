@@ -1,3 +1,5 @@
+not to be mistaken for an expert.
+
 i believe in intelligence, and i think you should too.
 
 don't take my opinions too seriously though, I don't.
